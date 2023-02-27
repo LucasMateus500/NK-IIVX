@@ -24,7 +24,7 @@ c2='white'
 
 
 
-class Lucas_Mateus(MDApp):
+class M1(MDApp):
 
 	def build(self):
 		self.theme_cls.material_style = "M3"
@@ -545,7 +545,7 @@ MDScreen:
 
 
 if __name__ == "__main__":
-       Lucas_Mateus = Lucas_Mateus()
+       M1 = M1()
 
 
-threading.Thread(target=Lucas_Mateus.run())
+threading.Thread(target=M1.run())
