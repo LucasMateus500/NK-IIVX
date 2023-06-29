@@ -16,6 +16,7 @@
 
 ![raposa escutando fone, imagem vetorizada, cores dark ,imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/f09a097b-86c1-4c5c-84cf-1ec6e6247b6a)
 
+![pintura de fragata em paisagem ,imagem realista, cores quentes , imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/7fa2e679-0bae-4a5b-8e29-c805d652f296)
 
 
 
