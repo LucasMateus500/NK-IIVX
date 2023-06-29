@@ -6,7 +6,6 @@
 
 ![NFT_NKT2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/663362d3-4624-4958-8f8d-66ad98345d1d)
 
-![img](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/dfb0f42d-d417-476b-b16d-084a64388fce)
+![raposa escutando fone, imagem vetorizada, cores dark ,imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/f09a097b-86c1-4c5c-84cf-1ec6e6247b6a)
 
-
-![img-fWAPz2vTwHSFcrTsjyU0OElN](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/b3f577b5-053c-4f24-a6a7-f3d029c1deb8)
+![rato escutando fone, imagem estilo anime , imagem vetorizada, cores quentes ,imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/d70eff93-91b5-44b0-81cb-b2ab7107ad56)
