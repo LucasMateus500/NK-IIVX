@@ -12,4 +12,6 @@
 
 ![t5](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/2e2154bb-1513-494e-8875-85e31094c723)
 
+![ra11](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/724836eb-1bac-4097-833f-fa1b2e023bd0)
+
 ![k2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/f5491d0a-3e56-4362-b175-3c0fd412c381)
