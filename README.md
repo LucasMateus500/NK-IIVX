@@ -1,6 +1,6 @@
 # NK-IIVX
 DALL·E 2
-SAMILA
+e SAMILA
 
 ![2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/909edf4f-eef6-4762-a6ea-ce2ada9dae68)
 
