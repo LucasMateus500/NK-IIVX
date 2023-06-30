@@ -10,7 +10,8 @@
 
 ![NFT_NKT1 ](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/8611d1ac-ffb8-48be-bbcc-890818ea84bf)
 
-![NFT_NKT2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/663362d3-4624-4958-8f8d-66ad98345d1d)
+![t5](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/d69361f0-e0f8-445e-bf4b-2445bbf1325b)
+
 
 ![rato escutando fone, imagem estilo anime , imagem vetorizada, cores quentes ,imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/34378b06-4f0e-4cb7-b78c-867348d96248)
 
