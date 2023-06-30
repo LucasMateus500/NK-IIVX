@@ -14,7 +14,7 @@ e SAMILA
 
 ![NFT_NKT2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/6e48fc88-0c30-4705-9546-f3351fb21a9c)
 
-
+![r9](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/2124c28b-4e5e-49b1-a798-7be53b015da6)
 ![3D-t](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/16bdd630-436b-458e-b5b2-eb17302f7a5b)
 
-![r9](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/2124c28b-4e5e-49b1-a798-7be53b015da6)
+
