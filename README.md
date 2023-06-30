@@ -9,15 +9,8 @@
 
 
 ![NFT_NKT1 ](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/8611d1ac-ffb8-48be-bbcc-890818ea84bf)
+![NFT_NKT2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/5d8f2daf-c6f9-4f6e-8b4d-87f8524326fb)
 
-![t5](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/d69361f0-e0f8-445e-bf4b-2445bbf1325b)
-![NFT_NKT3](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/3df98e84-a672-4152-a2d8-7c87e2e598df)
 
 ![ur 0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/12339d20-7a67-471f-9b5f-3bac816e4b16)
-
-
-![ra5](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/5b557cc5-0a52-4d8f-99b8-6698d582d0a6)
-
-![k1](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/e05ebf62-d3fb-4c0e-8964-679697ff2b98)
-
 ![k2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/f5491d0a-3e56-4362-b175-3c0fd412c381)
