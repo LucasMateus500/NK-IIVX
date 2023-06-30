@@ -13,10 +13,8 @@
 ![t5](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/d69361f0-e0f8-445e-bf4b-2445bbf1325b)
 
 
-![rato escutando fone, imagem estilo anime , imagem vetorizada, cores quentes ,imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/34378b06-4f0e-4cb7-b78c-867348d96248)
 
 
-![pintura de fragata em paisagem ,imagem realista, cores quentes , imagem altamente detalhada0](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/7fa2e679-0bae-4a5b-8e29-c805d652f296)
+![k1](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/e05ebf62-d3fb-4c0e-8964-679697ff2b98)
 
-
-
+![k2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/f5491d0a-3e56-4362-b175-3c0fd412c381)
