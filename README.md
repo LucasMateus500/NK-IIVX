@@ -16,7 +16,7 @@
 ![NFT_NKT2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/6e48fc88-0c30-4705-9546-f3351fb21a9c)
 
 
-![k1](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/818821c9-aae1-43d9-a644-0672aed0044f)
+
 
 ![k2](https://github.com/LucasMateus500/NK-IIVX/assets/126467107/8bf2a07a-3bad-49d4-be2a-605a4f864cd1)
 
